@@ -20,4 +20,4 @@
 结语  
 无论你是想观看最新的影片，还是想回顾经典的老片，优质的在线视频平台都能提供丰富的内容。通过选择正确的平台，你可以享受到高清、流畅、安全的观影体验。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/nff4046866/xyzav01 )</span>
